@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MADK790317MDFNZR0
+MADK790317MDFNZR0
